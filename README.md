@@ -11,7 +11,7 @@ Skills: REACT/ JAVASCRIPT / HTML / CSS / REDUX / NEXT JS /
 - 👯 I’m looking to collaborate on more than where, i think who. i want to collaborate with nice people. 
 - 🤔 I’m looking for help with get hired. right now i dont have experiencie in any job, but how i'll get it if i don't get a chance 
 - 💬 Ask me about my cultur, hobbies, thoughts, music, programming, developer.
-- 📫 How to reach me: via whatsApp is the best way +34 628192885 
+- 📫 How to reach me: via whatsApp is the best way +34 641095593 
 - 😄 Pronouns: Duverx 
 - ⚡ Fun fact: i use my pc since i'm 6 years old, i love collaborate, and be useful 
 
